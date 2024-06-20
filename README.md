@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Web Development.**
 
-- 📫 How to reach me **singhlink4@gmail.com**
+- 📫 How to reach me **Chauhannikhil0010@gmail.com**
 
 - 📄 Know about my experiences [comming-soon)
 
